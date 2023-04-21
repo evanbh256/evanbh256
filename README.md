@@ -22,6 +22,6 @@ Here are some of the projects I have worked on:
 
 - Email: [bhandari.nirwan06@gmail.com](mailto:bhandari.nirwan06@gmail.com)
 - Instagram: [@evan_256](https://www.instagram.com/evan_256/)
-- Website: [evanbhandari.github.io](https://evanbhandari.com.np)
+- Website: [evanbhandari.com.np](https://evanbhandari.com.np)
 
 Thank you for visiting my profile! 
